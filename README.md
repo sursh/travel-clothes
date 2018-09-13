@@ -18,7 +18,7 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "[Everlane chinos](https://www.everlane.com/products/womens-easy-chino-washedblack)" -L
 
-"[Trekkie pants by Athleta](https://athleta.gap.com/browse/product.do?pid=210531). The photos on the page are not that good IMO, I think they look much better than the pictures. I have all the colors :)" -G
+"[Trekkie pants by Athleta](https://athleta.gap.com/browse/product.do?pid=210531). The photos on the page are not that good IMO, I think they look much better than the pictures. I have all the colors :)" -Gabriela
 
 
 ## Shirts
@@ -59,4 +59,4 @@ This particular project is laser focused on the intersection of comfort and styl
 
 
 # Contributors
-
+[Gabriela de Queiroz](https://twitter.com/gdequeiroz)
