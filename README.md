@@ -6,6 +6,8 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "Leggings and an oversized shirt with vans/sneakers. I usually go with the white and black striped one [here](http://www2.hm.com/en_gb/productpage.0688873015.html) and roll up the sleeves and feels a bit tidier but still comfy due to baggy fit (which allows for sports bra if want to be super comfy etc)." -Sheree
 
+"Not sure how grown up but my travel uniform is black tank top, black short or long sleeve shirt depending on season, black or gray cashmere sweater with black pants and black nikes. Always bring a scarf. Can wear any layer on its own. Can handle any weather, spill or delay." -Jessica
+
 ## Pants
 
 "i’m basically head to toe @thisisADAY when i travel. particularly love...**the throw & roll leggings** (which have a very convenient pocket so i can stash my phone when i need my hands free)" -Tracy
