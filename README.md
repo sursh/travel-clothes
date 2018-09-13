@@ -59,10 +59,11 @@ This particular project is laser focused on the intersection of comfort and styl
 
 
 # Contributors
-[Gabriela de Queiroz](https://twitter.com/gdequeiroz)
-Sheree
-Jessica
-Tracy
-L
-Christina
-Paula
+
+- [Gabriela de Queiroz](https://twitter.com/gdequeiroz)
+- Sheree
+- Jessica
+- Tracy
+- L
+- Christina
+- Paula
