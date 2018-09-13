@@ -12,6 +12,10 @@ for women who want to be super comfy and still look put together! This is a livi
 
 ## Shirts
 
+"An oversized shirt like [this one](http://www2.hm.com/en_gb/productpage.0688873015.html) over leggings. Roll up the sleeves and feels a bit tidier but still comfy due to baggy fit (which allows for sports bra if want to be super comfy etc)" -Sheree
+
+![H&M long sleeve shirt](pics/hm_long_sleeved_shirt.jpg)
+
 ## Outer Layers
 
 "I carry a lightweight 'blanket' throw over arms or legs or use as pillow." -Paula
