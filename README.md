@@ -12,6 +12,10 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "i’m basically head to toe @thisisADAY when i travel. particularly love...**the throw & roll leggings** (which have a very convenient pocket so i can stash my phone when i need my hands free)" -Tracy
 
+"[Girlfriend leggings](https://www.girlfriend.com/collections/leggings). I love the compression feeling but many women I know don’t so YMMV." -L
+
+"[Everlane chinos](https://www.everlane.com/products/womens-easy-chino-washedblack)" -L
+
 ## Shirts
 
 "An oversized shirt like [this one](http://www2.hm.com/en_gb/productpage.0688873015.html) over leggings. Roll up the sleeves and feels a bit tidier but still comfy due to baggy fit (which allows for sports bra if want to be super comfy etc)" -Sheree
@@ -24,9 +28,14 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "i’m basically head to toe @thisisADAY when i travel. particularly love the **up in the air jacket**" -Tracy
 
+"[The Red-Eye Wrap](https://www.betabrand.com/womens-black-red-eye-travel-wrap-cardigan) as a warm layer for overnight flights. It does get bulky so it’s not super flattering for normal sweater weather - but its my go to for international flights because of the huge zipper pockets inside it for passports etc and the long sleeves + eye/ear covering part let me sleep even more comfortably with an eye mask and ear plugs on" -L
+
+
 ## Underwear & Bras
 
 "I do a racerback bra with front hook so I can unlatch during longer flights." -Christina
+
+"I got these [Bra-lellujah Bralettes](https://www.spanx.com/shops/new/bra-llelujah-bralette) recommended in a Slack I’m in and have now bought five of them. They are perfect for everyday wear but ESPECIALLY GREAT for plane travel" -L
 
 ## Shoes & Socks
 
@@ -36,7 +45,7 @@ Please feel free to submit pull requests with suggestions! Since this is all one
 
 Please be specific. When possible, link to specific items. If it's sold out, try to include a similar product to illustrate. 
 
-This particular project is laser focused on the intersection of comfort and style. Ideas should be right in that sweet spot and may be rejected if they're too far in either direction. They should be clothes or other wearable garments, not earphones and other travel tools. 
+This particular project is laser focused on the intersection of comfort and style. It's easy to be comfortable and it's easy to be stylish but it's really hard to be both! Ideas should be right in that sweet spot and may be rejected if they're too far in either direction. They should be clothes or other wearable garments, not earphones and other travel tools. 
 
 # Contributors
 
