@@ -65,5 +65,5 @@ This particular project is laser focused on the intersection of comfort and styl
 - Jessica
 - Tracy
 - L
-- Christina
+- [Christina Wallace](http://www.christinawallace.com)
 - Paula
