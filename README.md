@@ -4,11 +4,15 @@ for women who want to be super comfy and still look put together! This is a livi
 
 ## Pants
 
+"i’m basically head to toe @thisisADAY when i travel. particularly love...**the throw & roll leggings** (which have a very convenient pocket so i can stash my phone when i need my hands free)" -Tracy
+
 ## Shirts
 
 ## Outer Layers
 
-"I carry a lightweight 'blanket' throw over arms or legs or use as pillow."
+"I carry a lightweight 'blanket' throw over arms or legs or use as pillow." -Paula
+
+"i’m basically head to toe @thisisADAY when i travel. particularly love the **up in the air jacket**" -Tracy
 
 ## Underwear & Bras
 
