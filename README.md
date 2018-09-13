@@ -20,6 +20,9 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "[Trekkie pants by Athleta](https://athleta.gap.com/browse/product.do?pid=210531). The photos on the page are not that good IMO, I think they look much better than the pictures. I have all the colors :)" -Gabriela
 
+Lululemon chimed in on Twitter with [On The Fly pants](https://shop.lululemon.com/p/women-pants/On-The-Fly-Pant-Woven/_/prod8431165?CID=tw_dige&color=34529&linkId=56824406) and the reviews look very promising.
+
+![Lululemon On The Fly pants](pics/lululemon_ontheflypants.jpg)
 
 ## Shirts
 
