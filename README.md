@@ -43,9 +43,11 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "I got these [Bra-lellujah Bralettes](https://www.spanx.com/shops/new/bra-llelujah-bralette) recommended in a Slack I’m in and have now bought five of them. They are perfect for everyday wear but ESPECIALLY GREAT for plane travel" -L
 
+"The [True Body](https://trueandco.com/collections/true-body-bras-underwear) line of bras from True & Co. They look atrocious but are incredibly comfortable—kind of like a sports bra but better. I was skeptical but saw them say something like '90% of our employees hated the way they looked initially but now wear them every week'. Also good for when you're wearing a sheer shirt but don't want a bra to show.' -Sasha
 
 ## Shoes & Socks
 
+"When traveling in the winter I'll wear my biggest shoes (usually knee boots) on the plane to save suitcase space, and then take them off and wear big fluffy socks while in transit." -Sasha
 
 # Contributions welcome
 
