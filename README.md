@@ -1,12 +1,14 @@
 # Travel clothes
 
-for women who want to be super comfy and still look put together! This is a living document and contributions are super welcome (see the end of the page for more details)
+for women who want to be super comfy and still look put together! This is a living document and contributions are encouraged (see the end of the page for more details)
 
 ## Pants
 
 ## Shirts
 
 ## Outer Layers
+
+"I carry a lightweight 'blanket' throw over arms or legs or use as pillow."
 
 ## Underwear & Bras
 
