@@ -16,6 +16,8 @@ for women who want to be super comfy and still look put together! This is a livi
 
 ## Underwear & Bras
 
+"I do a racerback bra with front hook so I can unlatch during longer flights." -Christina
+
 ## Shoes & Socks
 
 # Contributions welcome
