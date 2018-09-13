@@ -12,7 +12,9 @@ for women who want to be super comfy and still look put together! This is a livi
 
 ## Pants
 
-"i’m basically head to toe @thisisADAY when i travel. particularly love...**the throw & roll leggings** (which have a very convenient pocket so i can stash my phone when i need my hands free)" -Tracy
+"i’m basically head to toe @thisisADAY when i travel. particularly love...[the throw & roll leggings](https://www.thisisaday.com/#!/products/leggings) (which have a very convenient pocket so i can stash my phone when i need my hands free)" -Tracy
+
+![ADay Throw & Roll leggings](pics/aday_throwandrollleggings.png)
 
 "[Girlfriend leggings](https://www.girlfriend.com/collections/leggings). I love the compression feeling but many women I know don’t so YMMV." -L
 
@@ -35,7 +37,9 @@ Lululemon chimed in on Twitter with [On The Fly pants](https://shop.lululemon.co
 
 "I carry a lightweight 'blanket' throw over arms or legs or use as pillow." -Paula
 
-"i’m basically head to toe @thisisADAY when i travel. particularly love the **up in the air jacket**" -Tracy
+"i’m basically head to toe @thisisADAY when i travel. particularly love the [up in the air jacket](https://www.thisisaday.com/#!/products/outerwear-jacket)" -Tracy
+
+![ADay Up In The Air Jacket](pics/aday_UpInTheAirJacket.png)
 
 "[The Red-Eye Wrap](https://www.betabrand.com/womens-black-red-eye-travel-wrap-cardigan) as a warm layer for overnight flights. It does get bulky so it’s not super flattering for normal sweater weather - but its my go to for international flights because of the huge zipper pockets inside it for passports etc and the long sleeves + eye/ear covering part let me sleep even more comfortably with an eye mask and ear plugs on" -L
 
