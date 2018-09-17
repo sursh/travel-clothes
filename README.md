@@ -9,6 +9,8 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "Not sure how grown up but my travel uniform is black tank top, black short or long sleeve shirt depending on season, black or gray cashmere sweater with black pants and black nikes. Always bring a scarf. Can wear any layer on its own. Can handle any weather, spill or delay." -Jessica
 
+"Sometimes I've had to go straight from the airport to give a talk or to a meeting, so I want to look more polished but still be as comfortable as possible. My go-to in that situation is a [polished knit dress](https://www.karenkane.com/store/dress-shop/by-style/cascade-wrap-dresses/cascade-wrap-dress-l13915?color=black), often faux wrap but not real wrap (to avoid wardrobe malfunctions). I try to hit the same balance with shoes in that situation. Refined booties can be good!" -Julia
+
 
 ## Pants
 
@@ -74,3 +76,4 @@ This particular project is laser focused on the intersection of comfort and styl
 - L
 - [Christina Wallace](http://www.christinawallace.com)
 - Paula
+- [Julia](https://twitter.com/juliasilge)
