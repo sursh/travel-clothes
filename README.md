@@ -11,6 +11,8 @@ for women who want to be super comfy and still look put together! This is a livi
 
 "Sometimes I've had to go straight from the airport to give a talk or to a meeting, so I want to look more polished but still be as comfortable as possible. My go-to in that situation is a [polished knit dress](https://www.karenkane.com/store/dress-shop/by-style/cascade-wrap-dresses/cascade-wrap-dress-l13915?color=black), often faux wrap but not real wrap (to avoid wardrobe malfunctions). I try to hit the same balance with shoes in that situation. Refined booties can be good!" -Julia
 
+![Faux wrap dress](pics/faux-wrap-dress.jpeg)
+
 
 ## Pants
 
